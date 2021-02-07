@@ -1,5 +1,7 @@
-### Hi there | Bienvenido a mi perfil !! 🙋‍♂️🐱
+# Hi there | Bienvenido a mi perfil !! 🙋‍♂️🌱
+### Soy un Front End muy creativo y resiliente !!
 
-Soy un Front End muy creativo y resiliente.
-Ávido de proyectos desafiantes y siempre en búsqueda de desarrollo profesional.
-Así que no dudes en contactarme 💻🔭🌠
+*Siempre ávido de proyectos desafiantes y en búsqueda de desarrollo profesional*
+*Así que no dudes en contactarme* 💻🔭🌠
+
+🔹 [My Linkedln Profile](https://www.linkedin.com/in/scerdan/) 
