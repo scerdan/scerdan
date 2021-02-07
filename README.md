@@ -5,4 +5,4 @@
 
 __No dudes__ en contactarme* 📲
 
-🔹 [My Linkedln Profile](https://www.linkedin.com/in/scerdan/) 
+🔸 [My Linkedln Profile](https://www.linkedin.com/in/scerdan/) 
