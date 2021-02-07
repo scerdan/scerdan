@@ -3,6 +3,6 @@
 
 *Siempre ávido de proyectos desafiantes y en búsqueda de desarrollo profesional*
 
-*Así que no dudes en contactarme* 📲
+__No dudes__ en contactarme* 📲
 
 🔹 [My Linkedln Profile](https://www.linkedin.com/in/scerdan/) 
