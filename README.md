@@ -1,5 +1,5 @@
 # Hi there | Bienvenido a mi perfil !! 🙋‍♂️🌱
-### Soy Mobile Dev y Front Dev 💻 muy creativo y resiliente !!
+### Soy Mobile Dev 💻 muy creativo y resiliente !!
 
 *Siempre ávido de proyectos desafiantes y en búsqueda de desarrollo profesional*
 
